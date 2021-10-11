@@ -4,11 +4,9 @@
 
 * [**Darkpit Osu Profile**](https://osu.ppy.sh/users/7031074)
 
-My edits are so awesome.
+My edits are so awesome. DM me if any links are broken.
 
 Discord: **Darkpit#0602**
-
-# **DM me if any links are broken**
 
 # Darkpit Skins/Edits
 
