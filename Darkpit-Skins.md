@@ -1,6 +1,6 @@
 # *hopefully i update this lol*  
 
-* [**Darkpit Twitter*](https://twitter.com/Darkpitqwc)
+* [**Darkpit Twitter**](https://twitter.com/Darkpitqwc)
 
 * [**Darkpit Osu Profile**](https://osu.ppy.sh/users/7031074)
 
